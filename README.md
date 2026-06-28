@@ -1,1 +1,1 @@
-# USDT
+amb# USDT
